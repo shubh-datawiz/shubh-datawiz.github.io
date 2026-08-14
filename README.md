@@ -1,1 +1,1 @@
-https://shubh-datawiz-github.i.o/
+https://shubh-datawiz.github.io/
